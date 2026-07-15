@@ -4,7 +4,7 @@ I bridge the gap between technical software development and data-driven business
 
 Email Me 👉 ✉️ **harshmazari1122@gamil.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 💼 Available for: Junior Data Analyst roles
+- 💼 Available for: Junior Data Analyst roles, MIS Executives
 - 🌱 **I’m currently learning:** Power BI, SQL, Python
   
 ## 🌐 Socials:
